@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eileenphan
-- 👀 I’m interested in coding. 
-- 🌱 I’m currently learning life. 
+- 👀 I'm open to learning. 
+- 🌱
 - 💞️ 
 - 📫 
 
